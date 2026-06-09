@@ -1,4 +1,4 @@
-
+secret Script for enter brainrot heads is the best enter brainrot heads Script, featuring auto-collect and silent aim. Safe and powerful for all your
 
 
 
